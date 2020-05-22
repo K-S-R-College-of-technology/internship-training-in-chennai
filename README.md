@@ -1,0 +1,2 @@
+# internship-training-in-chennai
+DLK Career Development Center Chennai provides best Internship and Inplant Training in Chennai for students. Inplant are brief-term experiences that can help you observe and take part in professional work environments and discover how your interests relate to feasible careers.  DLK imparting Inplants packages to college students of all branches of engineering BE- CSE , IT, EEE , ECE &amp; MSC (CS / IT) / BSC (CS / IT) / MCA , and so on.,  For more details contact us: 9751800789  No:70, Rahaat plaza, vadapalani, chennai.
